@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @Prince-0708
 - 👀 I’m interested in Coding
-- 🌱 I’m currently learning BSc Computer science
+- 🌱 I’m currently studying BSc Computer Science
 - 💞️ I’m looking forward to collaborating with everyone
 - 📫 How to reach me odoomprince888@gmail.com
 
